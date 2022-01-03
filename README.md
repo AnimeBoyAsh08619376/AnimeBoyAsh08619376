@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @AnimeBoyAsh08619376
+- 👋 Hi, I’m @AnimeBoyAsh08619376/Ash
 - 👀 I’m interested in Drawing And Anime 
-- 🌱 I’m currently learning How to speak in other lang
+- 🌱 I’m currently learning How to speak in other langs
 - 💞️ I’m looking to collaborate on I don'T really know sorry.
 - 📫 How to reach me on EMAIL=Bailey.brill@stu.pendleton.kyschools.us
 -I love Music when im working on something.
